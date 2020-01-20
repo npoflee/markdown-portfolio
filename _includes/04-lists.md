@@ -1,0 +1,2 @@
+- Scale Geoffery West
+- Capital by Piketty
